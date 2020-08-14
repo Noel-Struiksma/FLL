@@ -1,3 +1,3 @@
 # Team 1712 Code
 ### Valley Christian Middle School's Robotics Team
-Add info here :) 
+[This is the Team Drawing Board.](https://docs.google.com/drawings/d/1_adWwjspStzz78g4_KW41tSnc-Z-qmMCbQ-XH5qQBgA/edit)
